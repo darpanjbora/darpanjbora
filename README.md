@@ -6,9 +6,9 @@
 
 - 💼Employed at [Wells Fargo](https://www.wellsfargo.com)
 - 🏠Currently in Hyderabad
+- ↖️ That's nonsense!🗣I speak English, Assamese and Hindi.
 - 🎭Talk to me about technology, food and The Big Bang Theory💥
 - Social links are present there ↗️ to connect to me.
-- 🗣I speak English, Assamese and Hindi
 - ⬅️Way to my virtual home (portfolio! 🤦🏻‍♂️) here!
 
 
